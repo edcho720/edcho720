@@ -1,5 +1,5 @@
 # ⚡️ About Me:
-😎 I 'm a Software Engineer with a passion for Science 🧬 the Outdoors 🌲 and Fitness 💪🏼<br>🔫 Shoot me an email 📧 or connect with me on LinkedIn 🔗
+😎 I'm a Software Engineer with a passion for Science 🧬 the Outdoors 🌲 and Fitness 💪🏼<br>🔫 Shoot me an email 📧 or connect with me on LinkedIn 🔗
 
 
 ## 🌐 Socials:
